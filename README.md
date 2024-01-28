@@ -1,7 +1,7 @@
 - 👋 Hi, I’m Francisco Oliveira
-- 👀 I’m interested in cheats
-- 🌱 I’m currently learning progamming cheats
+- 👀 I’m 
+- 🌱 I’m currently learning progamming 
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me -----> #noqs23 (Discord)
 
 
